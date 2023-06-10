@@ -1,0 +1,1 @@
+it's important to fully understant the work because i will be able to explain the work done any other person or user.
